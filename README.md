@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Irfannnx
+- 👋 Hi, I’m Irfan
 - 👀 I’m interested in learning
-- 🌱 I’m currently learning coding languages
+- 🌱 I’m currently studying btech on Riet
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me irfansalim3@gmail.com
 
