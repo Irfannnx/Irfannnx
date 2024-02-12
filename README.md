@@ -2,7 +2,7 @@
 Hey there, I am Irfan S and I am currently studying B.Tech on RIET TVM.
 I have a unique authenticated brain that was build for designing.
 I can imaginate and animate anything on my brain.
-You can reach me on: irfansalim3@gmail.com , irfanscreatives@gmail.com
+You can reach me on: irfanscreatives@gmail.com
 Take Care ♥
 
 ## 🌐 Socials:
